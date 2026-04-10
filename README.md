@@ -49,6 +49,8 @@
 
 <p align="center"><img src="https://i.postimg.cc/zHnMNk1L/m27.gif"width="100">
 
+<p align="center"><img src="baka.jpeg"width="300" height="300">
+
 credits
 
 https://rentry.org/lavender-resources **for but***ton****s an***d s***ome* pi****xe***ls* !
